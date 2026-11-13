@@ -224,4 +224,4 @@ The First Berserker: Khazan is available as a full free version, featuring all u
 Are you ready for an unforgettable adventure? Don’t wait any longer—download The First Berserker: Khazan for Windows now and embark on your epic journey!
 
 ---
-**Last updated:** 2026-11-12 23:24:50 UTC
+**Last updated:** 2026-11-13 05:59:25 UTC
